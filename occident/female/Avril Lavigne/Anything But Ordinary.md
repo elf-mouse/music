@@ -1,7 +1,6 @@
 ## Anything But Ordinary
 
-* 作词：-
-* 作曲：-
+* 词曲：-
 * 演唱：Avril Lavigne
 * 专辑：Let Go
 
